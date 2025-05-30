@@ -50,7 +50,7 @@ We may update these Terms from time to time. Users will be notified of major cha
 
 ## 11. Contact
 If you have questions about these Terms, contact us at:  
-**Email:** support@koromarket.com
+**Email:** Info@technbeyondit.com
 
 ---
 

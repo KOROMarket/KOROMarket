@@ -51,6 +51,7 @@ We may update these Terms from time to time. Users will be notified of major cha
 ## 11. Contact
 If you have questions about these Terms, contact us at:  
 **Email:** Info@technbeyondit.com
+**whats app:** +2250704373224
 
 ---
 
